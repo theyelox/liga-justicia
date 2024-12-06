@@ -23,3 +23,7 @@ CHINGAS A TU MADRE
 
 
 ##chisgas a la tuya prrro
+
+
+
+##eres puto??
