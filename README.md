@@ -21,4 +21,9 @@ $$le puse esto MIRALOOO
 
 CHINGAS A TU MADRE
 
-##callese changa
+
+##chisgas a la tuya prrro
+
+
+
+##eres puto??
