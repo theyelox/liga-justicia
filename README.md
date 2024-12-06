@@ -20,3 +20,6 @@ $$le puse esto MIRALOOO
 ##cambios desde local
 
 CHINGAS A TU MADRE
+
+
+##chisgas a la tuya prrro
